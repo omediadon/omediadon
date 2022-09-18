@@ -1,0 +1,5 @@
+- 👋 Hi, I’m SAKHRAOUI Omar, but you can call me @omediadon
+- 👀 I’m interested in learning, literally, everything
+- 🌱 I’m currently learning Prestashop and other e-commerce platforms in more depth 
+- 💞️ I’m looking to collaborate on Unity3D, PHP, and JS projects
+- 📫 Look for me on WhatsApp: +216 27 161 321
